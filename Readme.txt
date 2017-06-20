@@ -1,0 +1,1 @@
+Revisar la carpeta anexos para ver algunos diagramas en formato de imagen.
